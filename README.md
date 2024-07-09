@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @spicymaio
-- 👀 I’m interested in biology, pilates, cooking 
+- 👀 I’m interested in biology, pilates & cooking 
 - 🌱 I’m currently learning embroidery
 
 <!---
